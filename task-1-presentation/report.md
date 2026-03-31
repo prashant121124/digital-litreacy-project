@@ -1,0 +1,5 @@
+In this task, I created a digital literacy awareness infographic to help my peers understand the importance of digital literacy. I used Canva as my design tool because it is user-friendly and provides a wide range of templates, icons, and design elements. The infographic was designed as a single-page visual resource that covers key topics such as the meaning of digital literacy, useful digital tools for students, safe internet practices, professional online presence, and email etiquette.
+
+The purpose of the infographic is to make complex information simple, engaging, and easy to understand. I used clear headings, bullet points, and icons to present the information in a visually appealing manner. This makes it easier for students to quickly grasp important concepts related to digital safety and professional communication.
+
+One challenge I faced while creating the infographic was organizing the content effectively within a single page without making it look cluttered. However, this task helped me improve my design skills and understand how to communicate information clearly using visuals.
