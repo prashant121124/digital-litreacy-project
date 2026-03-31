@@ -49,7 +49,7 @@ You can also browse everything directly on GitHub without cloning.
 Improved digital presentation and communication skills
 Professional online presence building
 Safe and effective use of digital tools
-Cyber security awareness
+Cyber-security awareness
 
 
 👤 Author
